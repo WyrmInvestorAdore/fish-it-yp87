@@ -1,4 +1,4 @@
-#  
+#  fish it Scripts ultimate is the best fish it Script, featuring aimbot and unlimited stamina. Safe and powerful for all your needs.
 
 
 
